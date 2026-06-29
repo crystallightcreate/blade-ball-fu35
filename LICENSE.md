@@ -1,4 +1,4 @@
-# 
+# Experience blade ball like never before with blade ball Scripts vip, the #1 Script. Includes undetectable and invisibility for unbeatable performance.
 
 
 
